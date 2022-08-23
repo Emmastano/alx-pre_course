@@ -1,1 +1,1 @@
-README.md is now up to date. Wait for further instrcutions.
+README.md FILE IS NOW UPTO DATE
